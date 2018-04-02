@@ -1,1 +1,1 @@
-# Rider-2-Buyer-Agile-Methodology-
+# Rider-2-Buyer-Agile-Methodology
